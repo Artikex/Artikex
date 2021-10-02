@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Artikex
+- 👀 I’m interested in tool- and game development
+- 🌱 I’m currently learning too many things to list here
+- 📫 My discord server: https://discord.gg/NRgyWHJQ
